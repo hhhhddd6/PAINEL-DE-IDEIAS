@@ -1,1 +1,0 @@
-# PAINEL-DE-IDEIAS
